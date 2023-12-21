@@ -1,1 +1,1 @@
-# very-basic-resume
+https://vishwaskatiyar.github.io/very-basic-resume/
